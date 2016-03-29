@@ -1,0 +1,24 @@
+<?xml version="1.0" encoding="UTF-8"?>
+<!DOCTYPE tmx SYSTEM "tmx11.dtd">
+<tmx version="1.1">
+  <header
+    creationtool="OmegaT"
+    creationtoolversion="2.3.0_1"
+    segtype="sentence"
+    o-tmf="OmegaT TMX"
+    adminlang="EN-US"
+    srclang="DE"
+    datatype="plaintext"
+  >
+  </header>
+  <body>
+    <tu>
+      <tuv lang="DE">
+        <seg>&lt;f0&gt;Vorwort&lt;/f0&gt;&lt;f1&gt;.&lt;/f1&gt;</seg>
+      </tuv>
+      <tuv lang="ES" changedate="20160126T161123Z" changeid="glengemann">
+        <seg>&lt;f0&gt;Prologo&lt;/f0&gt;&lt;f1&gt;.&lt;/f1&gt;</seg>
+      </tuv>
+    </tu>
+  </body>
+</tmx>

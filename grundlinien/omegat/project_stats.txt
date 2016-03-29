@@ -1,0 +1,14 @@
+26.01.16 11:47
+Projektstatistik
+
+                       	Segmente	Wörter	Zeichen (ohne Leerzeichen)	Zeichen (mit Leerzeichen)	
+Insgesamt:             	      15	   268	                      1788	                     2037	
+Verbleiben:            	      14	   267	                      1780	                     2029	
+Einzigartig:           	      15	   268	                      1788	                     2037	
+Verbleiben einzigartig:	      14	   267	                      1780	                     2029	
+
+
+Statistik einzelner Dateien:
+
+Dateiname                                       	Total Segments	Remaining Segments	Unique Segments	Unique Remaining Segments	Wörter insgesamt	verbleibende Wörter:	Unique Words	Unique Remaining Words	Zeichen insgesamt (ohne Leerzeichen)	verbleibende Zeichen (ohne Leerzeichen)	Unique Characters (without spaces)	Unique Remaining Characters (without spaces)	insgesamt Zeichen (mit Leerzeichen)	verbleibende Zeichen (mit Leerzeichen)	Unique Characters (including spaces)	Unique Remaining Characters (including spaces)	
+grundlinien_einer_philosophie_der_technik_de.odt	            15	                14	             15	                       14	             268	                 267	         268	                   267	                                1788	                                   1780	                              1788	                                        1780	                               2037	                                  2029	                                2037	                                          2029	
