@@ -35,3 +35,12 @@ Gebilden, welche das lebendige Gliederganze des Menschen
 ausmachen, abzusehen und den gesammten Stoffmenschen
 fortzudenken, was Anderes von dem gerühmten Selbst bliebe
 dann noch übrig, als ein gespenstischer Geistesmensch?
+
+Erst mit der Gewissheit der leiblichen Existenz tritt
+das Selbst wahrhaft ins Bewusstsein. Es ist, weil es denkt,
+und es denkt, weil es ist. „Selbst”, nach der Ableitung
+des Wortes von _si liba_, heisst „Leib und Leben”. Mit
+dieser seiner Grundbedeutung ist nunmehr vollständig Ernst
+zu machen. Nicht hier ein halbes und dort ein halbes,
+sondern das ganze und einige Selbst ist in concreter Selbsterkenntniss
+vorhanden.
