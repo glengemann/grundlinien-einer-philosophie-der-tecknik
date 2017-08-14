@@ -22,7 +22,7 @@ Tritt bei diesem Vorgang das Bewusstsein des Menschen
 von der Welt ausser ihm unablässig in vergleichende
 Beziehung zu der Welt in ihm, so erhebt er sich dadurch,
 dass er im Denken sein Dasein als unterschieden von anderem
-Daseienden verbürgt weiss, zum Selbstbewusstsein.
+Daseienden verbürgt weiß, zum Selbstbewusstsein.
 
 Was man gegenwärtig unter dem Selbst versteht,
 dessen der Mensch sich bewusst wird, hat nicht mehr
