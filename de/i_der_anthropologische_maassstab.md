@@ -39,8 +39,19 @@ dann noch übrig, als ein gespenstischer Geistesmensch?
 Erst mit der Gewissheit der leiblichen Existenz tritt
 das Selbst wahrhaft ins Bewusstsein. Es ist, weil es denkt,
 und es denkt, weil es ist. „Selbst”, nach der Ableitung
-des Wortes von _si liba_, heisst „Leib und Leben”. Mit
+des Wortes von *si liba*, heißt „Leib und Leben”. Mit
 dieser seiner Grundbedeutung ist nunmehr vollständig Ernst
 zu machen. Nicht hier ein halbes und dort ein halbes,
-sondern das ganze und einige Selbst ist in concreter Selbsterkenntniss
+sondern das ganze und einige Selbst ist in konkreter Selbsterkenntnis
 vorhanden.
+
+Diese Weise der Selbstauffassung, unbewusst in den
+Gemütern und Geistern vorbereitet, vorhanden als allgemeine
+Stimmung, ist an dem Punkt angekommen, wo unter
+der rastlosen Arbeit des Gedankens sich der richtige
+Ausdruck einstellt, welcher das Neue fixirt und zum mehr
+oder minder bewussten Gemeingut werden lässt. So war
+es namentlich der neuesten Naturwissenschaft vorbehalten,
+den Nachweis zu liefern, dass der leibliche Organismus
+für die Beschaffenheit aller Richtungen der menschlichen
+Thätigkeit zunächst verantwortlich ist.
