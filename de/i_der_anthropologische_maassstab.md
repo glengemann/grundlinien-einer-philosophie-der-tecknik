@@ -49,9 +49,21 @@ Diese Weise der Selbstauffassung, unbewusst in den
 Gemütern und Geistern vorbereitet, vorhanden als allgemeine
 Stimmung, ist an dem Punkt angekommen, wo unter
 der rastlosen Arbeit des Gedankens sich der richtige
-Ausdruck einstellt, welcher das Neue fixirt und zum mehr
+Ausdruck einstellt, welcher das Neue fixiert und zum mehr
 oder minder bewussten Gemeingut werden lässt. So war
 es namentlich der neuesten Naturwissenschaft vorbehalten,
 den Nachweis zu liefern, dass der leibliche Organismus
 für die Beschaffenheit aller Richtungen der menschlichen
 Thätigkeit zunächst verantwortlich ist.
+
+Naturforschung und Philosophie haben sich, oft auf
+scheinbar feindlichen Wegen, oft auch die eine in der
+Rüstung der anderen, bei jeder Verirrung doch immer
+wieder vom Menschen aus zurecht gefunden.
+
+Behauptet der Philosoph, er wisse von keiner Welt
+als in Bezug auf den Menschen, so bekennt in voller
+Übereinstimmung hiermit der Physiologe, sein Beruf sei,
+zu lehren was im Menschen ist, und der Wahrheit Geltung
+zu verschaffen, dass alle Weisheit in der Erkenntnis der
+Menschennatur liege.
