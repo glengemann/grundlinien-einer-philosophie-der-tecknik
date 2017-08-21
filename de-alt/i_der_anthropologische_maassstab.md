@@ -67,8 +67,8 @@ zu lehren was im Menschen ist, und der Wahrheit Geltung
 zu verschaffen, dass alle Weisheit in der Erkenntniss der
 Menschennatur liege.
 
-Auf diesem Wege haXXXXX das Alterthum sichere
-Schritte gethan. Indessen XXX es ein Anderes, was Dichter
+Auf diesem Wege hatte schon das Alterthum sichere
+Schritte gethan. Indessen ist es ein Anderes, was Dichter
 und Denker in prophetischer Vorschau verkünden, ein Anderes,
 was vom Arzt und Naturforscher als Ergebniss einer
 auf ein deutliches Ziel gerichteten Thätigkeit festgestellt
