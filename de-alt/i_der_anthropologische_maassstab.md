@@ -76,3 +76,10 @@ wird. Für Alles, was dort überwiegend unbewusstes Schauen
 einer allgemeinen Wahrheit ist, bringt hier die bewusste,
 in die Untersuchung vieles Einzelnen eingehende Arbeit
 Erklärung und Beweis.
+
+Nachdem die Erforschung des Grundstoffes der Welt
+lange genug die Philosophie beschäftigt hatte, war durch
+die Ahnung einer Abstimmung der elementaren Erscheinungen
+mit der Natur des Menschen das berühmte Wort
+des *Protagoras* angebahnt, dass der Mensch das Maass
+der Dinge sei.

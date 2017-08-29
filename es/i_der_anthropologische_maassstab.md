@@ -10,8 +10,13 @@ ni se pierde en el infinito.
 
 Sería capaz de copiar todos los objetos e imaginar toda la sustancia humana ¿cual
 de todas las partes vivas del cuerpo humano representar? ¿que otro yo elogiado
-queda aún como un espíritu espectral?.
+queda aún como un espíritu espectral?
 
 El estudio de la naturaleza y la folosofía, con frecuencia sobre un camino aparentemente
 hostil y frecuentemente la una con la armadura de la otra, se orienta siempre
 en cada nuevo extravío desde el Hombre.
+
+El filosofo sostiene que solo sabe del mundo con respecto al hombre, además, el
+fisiólogo reconoce su pleno consenso con esto, su trabajo es aprender que está
+en el hombre y hacer respetar la verdad de que todo saber reposa en la
+comprensión de la naturaleza del hombre.

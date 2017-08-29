@@ -54,7 +54,7 @@ oder minder bewussten Gemeingut werden lässt. So war
 es namentlich der neuesten Naturwissenschaft vorbehalten,
 den Nachweis zu liefern, dass der leibliche Organismus
 für die Beschaffenheit aller Richtungen der menschlichen
-Thätigkeit zunächst verantwortlich ist.
+Tätigkeit zunächst verantwortlich ist.
 
 Naturforschung und Philosophie haben sich, oft auf
 scheinbar feindlichen Wegen, oft auch die eine in der
@@ -67,3 +67,13 @@ als in Bezug auf den Menschen, so bekennt in voller
 zu lehren was im Menschen ist, und der Wahrheit Geltung
 zu verschaffen, dass alle Weisheit in der Erkenntnis der
 Menschennatur liege.
+
+Auf diesem Wege hatte schon das Altertum sichere
+Schritte getan. Indessen ist es ein Anderes, was Dichter
+und Denker in prophetischer Vorschau verkünden, ein Anderes,
+was vom Arzt und Naturforscher als Ergebnis einer
+auf ein deutliches Ziel gerichteten Tätigkeit festgestellt
+wird. Für alles, was dort überwiegend unbewusstes Schauen
+einer allgemeinen Wahrheit ist, bringt hier die bewusste,
+in die Untersuchung vieles Einzelnen eingehende Arbeit
+Erklärung und Beweis.
