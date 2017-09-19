@@ -77,9 +77,22 @@ einer allgemeinen Wahrheit ist, bringt hier die bewusste,
 in die Untersuchung vieles Einzelnen eingehende Arbeit
 Erklärung und Beweis.
 
-Nachdem die Erforschung des Grundstoffes der Welt
+[10] Nachdem die Erforschung des Grundstoffes der Welt
 lange genug die Philosophie beschäftigt hatte, war durch
 die Ahnung einer Abstimmung der elementaren Erscheinungen
 mit der Natur des Menschen das berühmte Wort
 des *Protagoras* angebahnt, dass der Mensch das Maass
 der Dinge sei.
+
+[11] Wenn auch beim Mangel an physiologischem Wissen zunächst
+mehr der reflectirende Mensch, weniger der leibliche,
+gemeint war, so war doch ein für allemal der **anthropologische
+Maassstab** formulirt und der eigentliche
+Kern menschlichen Wissens und Könnens, in wenn auch
+anfänglich noch so dunkler Verhüllung, kenntlich gemacht.
+
+[12] Ihm verdankt ihren ewigen Inhalt die griechische
+Kunst, deren Meissel in Götterbildern den Idealmenschen
+verkörperte, und es ist immerhin bezeichnend, dass für
+*Sokrates* die Bildhauerkunst, der er sich in jüngeren Jahren
+gewidmet, die Vorstufe gewesen ist zu seiner späteren |

@@ -77,3 +77,17 @@ wird. Für alles, was dort überwiegend unbewusstes Schauen
 einer allgemeinen Wahrheit ist, bringt hier die bewusste,
 in die Untersuchung vieles Einzelnen eingehende Arbeit
 Erklärung und Beweis.
+
+[10] Nachdem die Erforschung des Grundstoffes der Welt
+lange genug die Philosophie beschäftigt hatte, war durch
+die Ahnung einer Abstimmung der elementaren Erscheinungen
+mit der Natur des Menschen das berühmte Wort
+des *Protagoras* angebahnt, dass der Mensch das Maß
+der Dinge sei.
+
+[11] Wenn auch beim Mangel an physiologischem Wissen zunächst
+mehr der reflektierende Mensch, weniger der leibliche,
+gemeint war, so war doch ein für allemal der **anthropologische
+Maßstab** formuliert und der eigentliche
+Kern menschlichen Wissens und Könnens, in wenn auch
+anfänglich noch so dunkler Verhüllung, kenntlich gemacht.

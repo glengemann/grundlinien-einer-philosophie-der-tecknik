@@ -20,3 +20,15 @@ El filosofo sostiene que solo sabe del mundo con respecto al hombre, además, el
 fisiólogo reconoce su pleno consenso con esto, su trabajo es aprender que está
 en el hombre y hacer respetar la verdad de que todo saber reposa en la
 comprensión de la naturaleza del hombre.
+
+[10] Después de que la investigación de los elementos del mundo había ocupado a
+la filosofía por mucho tiempo, la famosa frase de *Protagoras* de que el Hombre
+es medida de todas las cosas estableció la idea de una combinación de los fenómenos
+elementales con la naturaleza del Hombre.
+
+[11] Wenn auch beim Mangel an physiologischem Wissen zunächst
+mehr der reflektierende Mensch, weniger der leibliche,
+gemeint war, so war doch ein für allemal der **anthropologische
+Maßstab** formuliert und der eigentliche
+Kern menschlichen Wissens und Könnens, in wenn auch
+anfänglich noch so dunkler Verhüllung, kenntlich gemacht.
