@@ -96,3 +96,40 @@ Kunst, deren Meissel in Götterbildern den Idealmenschen
 verkörperte, und es ist immerhin bezeichnend, dass für
 *Sokrates* die Bildhauerkunst, der er sich in jüngeren Jahren
 gewidmet, die Vorstufe gewesen ist zu seiner späteren |
+geistigen oder ethischen Plastik, und Grund der bekannten
+Tempelinschrift „Erkenne dich selbst˝; ja, die ganze Cultur
+der Menschheit ist von ihrem Anbeginn an nichts Anderes
+als die schrittweise Ausschälung und Enthüllung
+seines Kernes.
+
+[13] Die ersten Versuche nun in der Aufhellung organischer
+Vorgänge der philosophierenden Naturbetrachtung.
+
+[14] So befasste sich *Aristoteles* mit der Betrachtung des
+Leibes, weniger wie er von aussen ist, als vielmehr wie er
+als Offenbarungsmittel des Geistes von innen heraus wird.
+Der Umstand, dass seine Vorfahren Aerzte waren, kam
+von Haus aus seinen Untersuchungen wesentlich zu statten,
+und gab ihm die Anregung zu vergleichend anatomischen
+und physiologischen Arbeiten. Nach ihm waren es fast
+ausschliesslich Aerzte, welche die physiologischen Experimente
+und Studien erweiterten, bis in neuester Zeit die
+übergrosse Anhäufung des Materials zur Theilung der Arbeit
+mit Naturforschern und Philosophen nöthigte.
+
+[15] Die Geschichte dieser Arbeit ist die Geschichte der
+Physiologie. Versteht man unter Kenntniss des leiblichen
+Organismus die Kenntniss des Selbst und ist diese Selbstkenntniss
+und Selbsterkenntniss Grund und Quelle alles
+übrigen Wissens und Könnens: so liegt hierin mehr als
+eine Andeutung für die Behandlung der Geschichte derjenigen
+Disciplin, welche die Bestimmung hat, allen anderen
+fort und fort den unentbehrlichen Reformstoff zu liefern.
+
+Grosse wissenschaftliche Entdeckungen stehen nicht
+etwa in nur zufälligem Verbande äusserlicher Gleichzeitigkeit
+mit historisch Epoche machenden Ereignissen, sondern
+enthüllen sich vielmehr recht eigentlich als deren innere
+Triebkraft. Es ist dies eine genetische Verwandtschaft,
+| an welcher die Aufdeckungsgeschichte der menschlichen
+Physis nicht am wenigsten betheiligt ist.

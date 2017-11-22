@@ -32,3 +32,6 @@ gemeint war, so war doch ein für allemal der **anthropologische
 Maßstab** formuliert und der eigentliche
 Kern menschlichen Wissens und Könnens, in wenn auch
 anfänglich noch so dunkler Verhüllung, kenntlich gemacht.
+
+[13] Los primeros intentos de esclarecimiento de los procesos orgánicos pertenecen
+a la contemplación filosófica de la naturaleza. 

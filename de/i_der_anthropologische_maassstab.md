@@ -91,3 +91,21 @@ gemeint war, so war doch ein für allemal der **anthropologische
 Maßstab** formuliert und der eigentliche
 Kern menschlichen Wissens und Könnens, in wenn auch
 anfänglich noch so dunkler Verhüllung, kenntlich gemacht.
+
+[12] Ihm verdankt ihren ewigen Inhalt die griechische
+Kunst, deren Meißel in Götterbildern den Idealmenschen
+verkörperte, und es ist immerhin bezeichnend, dass für
+*Sokrates* die Bildhauerkunst, der er sich in jüngeren Jahren
+gewidmet, die Vorstufe gewesen ist zu seiner späteren |
+geistigen oder ethischen Plastik, und Grund der bekannten
+Tempelinschrift „Erkenne dich selbst˝; ja, die ganze Kultur
+der Menschheit ist von ihrem Anbeginn an nichts Anderes
+als die schrittweise Ausschälung und Enthüllung
+seines Kernes.
+
+[13] Die ersten Versuche nun in der Aufhellung organischer
+Vorgänge der philosophierenden Naturbetrachtung.
+
+[14] So befasste sich *Aristoteles* mit der Betrachtung des
+Leibes, weniger wie er von außen ist, als vielmehr wie er
+als Offenbarungsmittel des Geistes von innen heraus wird.
