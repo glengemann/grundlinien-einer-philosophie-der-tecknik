@@ -109,3 +109,11 @@ Vorgänge der philosophierenden Naturbetrachtung.
 [14] So befasste sich *Aristoteles* mit der Betrachtung des
 Leibes, weniger wie er von außen ist, als vielmehr wie er
 als Offenbarungsmittel des Geistes von innen heraus wird.
+
+<!-- 18 -->
+Hier hat die Geschichtsphilosophie noch eine große Aufgabe
+vor sich, bei deren Angriff ihr die Vorarbeiten für „Völkerpsychologie”
+von nicht gerigerem Nutzen sein werden, als
+die Ansätze zur Würdigung historischer Tatsachen vom physiologischen
+Standpunkte, wie sie in vereinzelten Schriften über
+„Physiologie des Staates” vorhanden sind.

@@ -133,3 +133,11 @@ enthüllen sich vielmehr recht eigentlich als deren innere
 Triebkraft. Es ist dies eine genetische Verwandtschaft,
 | an welcher die Aufdeckungsgeschichte der menschlichen
 Physis nicht am wenigsten betheiligt ist.
+
+<!-- 18 -->
+Hier hat die Geschichtsphilosophie noch eine grosse Aufgabe
+vor sich, bei deren Angriff ihr die Vorarbeiten für „Völkerpsychologie”
+von nicht gerigerem Nutzen sein werden, als
+die Ansätze zur Würdigung historischer Thatsachen vom physiologischen
+Standpunkte, wie sie in vereinzelten Schriften über
+„Physiologie des Staates” vorhanden sind.

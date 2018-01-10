@@ -34,4 +34,12 @@ Kern menschlichen Wissens und Könnens, in wenn auch
 anfänglich noch so dunkler Verhüllung, kenntlich gemacht.
 
 [13] Los primeros intentos de esclarecimiento de los procesos orgánicos pertenecen
-a la contemplación filosófica de la naturaleza. 
+a la contemplación filosófica de la naturaleza.
+
+<!-- 18 -->
+Aquí tiene la historia de la filosofía aún una gran tarea,
+con el empleo de ella los trabajos preparatorios de una «sociología de los pueblos»
+no serán de poca ayuda como
+los enfoques hacia la apreciación de los hechos históricos desde puntos de vista
+sicológicos como están disponibles en escritos aislados sobre
+la «sicología de los Estados».
