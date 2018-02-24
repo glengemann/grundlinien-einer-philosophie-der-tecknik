@@ -134,6 +134,13 @@ Triebkraft. Es ist dies eine genetische Verwandtschaft,
 | an welcher die Aufdeckungsgeschichte der menschlichen
 Physis nicht am wenigsten betheiligt ist.
 
+<!-- 17 -->
+Deutliche Belege für diesen inneren Zusammenhang sind
+unter anderen nächst dem als organische Gliederung und Entwicklung
+„thätigen Allgemeinen” des *Aristoteles*, die Nerven
+und Gehirnlehre des *Galenus*; des *Paracelsus* Grundgedanke
+vom Makrokosmos;
+
 <!-- 18 -->
 Hier hat die Geschichtsphilosophie noch eine grosse Aufgabe
 vor sich, bei deren Angriff ihr die Vorarbeiten für „Völkerpsychologie”
@@ -141,3 +148,33 @@ von nicht gerigerem Nutzen sein werden, als
 die Ansätze zur Würdigung historischer Thatsachen vom physiologischen
 Standpunkte, wie sie in vereinzelten Schriften über
 „Physiologie des Staates” vorhanden sind.
+
+<!-- 19 -->
+Psychologie und Physiologie haben lange genug fremd
+gegen einander gethan, und wie weit auch jene vordem
+dieser voraus war, sie ist nunmehr von ihr eingeholt worden.
+Damit nicht genug, werden sogar Stimmen laut,
+welche verlangen, sie müsse ihr ganz einverleibt werden.
+Sicher scheint, dass beide, in einer Verschmelzung begriffen,
+nicht wie bisher getrennt, sondern zu Einem Laufe
+vereinigt, in das weite Strombett der Anthropologie münden
+werden, um eine höhere Phase des Selbstbewusstseins
+als „Physiologische Psychologie” einzuleiten. Diese aber,
+die keine Auslassung in ihrer Darstellung des menschlichen
+Wesens duldet, macht dem Schwanken des Persönlichkeitsbegriffes
+dadurch ein Ende, dass sie ihn voll und ganz in
+das Selbstbewusstsein verlegt. Das Selbst ist Person, das
+selbstbewusste und das persönliche Wesen sind Eins. Der
+aus Missverständniss der Entwickelungstheorie stammende
+moderne Thiercultus hat freilich an beiden zu mäkeln,
+ohne zu bedenken, dass schliesslich eben doch nur Personen
+den Persönlichkeitsbegriff discutiren können.
+
+<!-- 20 -->
+Dass sich die frühere Auffassung des persönlichen
+Wesens als einer Zusammenfügung von zwei Bestandstücken
+in den genannten zwei Disciplinen ihren Ausdruck gegeben
+hatte, dass Physiologie und Psychologie neben einander
+hergehen mussten, indem jene zur Naturforschung, diese
+zur Philosophie zählte, ist ganz in der dualistischen Ordnung
+des Erkenntnissvorganges.
